@@ -103,4 +103,4 @@
 
 ---
 
-X4G · پشتیبانی: [@Farajian2004f](https://t.me/Farajian2004f)
+X4G · پشتیبانی: [@Farajian2004f](https://t.me/x4g_group)
